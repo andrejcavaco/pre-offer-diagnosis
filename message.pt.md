@@ -1,6 +1,6 @@
 Olá! Obrigada pelo interesse no meu perfil!
 
-Antes demais, quero pedir desculpa por estar a responder com uma mensagem pré definida, mas penso que sera melhor dar feedback assim do que não dar feedback de todo.
+Antes de mais, quero pedir desculpa por estar a responder com uma mensagem pré definida, mas penso que sera melhor dar feedback assim do que não dar feedback de todo.
 
 Antes de marcarmos uma conversa eu tenho algumas perguntas a fazer:
 
